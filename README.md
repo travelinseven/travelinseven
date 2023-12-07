@@ -2,7 +2,7 @@
 
 ## Innovation. Digital Transformation. Data Driven
 
-> I love to work for fun in weekend. Then work for money, start from Monday to Friday. I love Monday, especially when the invoice is paid on Monday.
+> My hourly rate is $125.00 (US) per hour, rounded up to the nearest quarter hour. If you know what you want, and the scope of your project is strictly defined, I might be able to quote you a flat rate for the job. I'm also open to discounted monthly retainer agreements (essentially prepaid hours to use within that month). You'll get a discount off of my hourly rate and I'll make sure I'm available to provide those hours within the month. Retainer agreements start at $3,000.00 (US) per month.
 
 ### Summary
 
